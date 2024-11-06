@@ -1,1 +1,0 @@
-# cinqtechnologies.github.io
